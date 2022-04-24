@@ -1,0 +1,1 @@
+# Jurnal09_6706213050_YudhistiraHaryatmakaSantoso
